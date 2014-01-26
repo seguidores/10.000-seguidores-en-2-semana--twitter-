@@ -6,6 +6,6 @@
 3)enviale un tweet que ya lo seguiste
 
 
-4)recomendalo en tu twitter a @AndradaLauty
+4)recomendalo en tu twitter  a https://twitter.com/AndradaLauty
 
 5)ahora espera 2 semanas y tanbien veraz que vas a tener 10 seguidores por dia
