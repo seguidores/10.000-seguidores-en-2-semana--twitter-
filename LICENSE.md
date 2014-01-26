@@ -1,7 +1,7 @@
 1)Entre al siguiente link:https://twitter.com/AndradaLauty
 
 
-2)siga ah esa cuenta de twitter
+2)sige ala cuenta que te di
 
 3)enviale un tweet que ya lo seguiste
 
